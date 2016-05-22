@@ -1,1 +1,1 @@
-# mySite.github.io
+# 1000doge.github.io
